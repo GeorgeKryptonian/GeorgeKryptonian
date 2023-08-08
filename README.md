@@ -1,1 +1,1 @@
-![backgroundTopography](https://github.com/GeorgeKryptonian/GeorgeKryptonian/assets/54601856/5d468c77-6eb9-47d8-ab1b-647fbc85572e)
+![backgroundTopography](https://github.com/GeorgeKryptonian/GeorgeKryptonian/assets/54601856/9e60a6f8-0a48-4fca-8702-5f4a0ad89e8e)
